@@ -2,7 +2,8 @@
 - 👀 I’m interested in ...Software Development
 - 🌱 I’m currently studying ...B.Tech in Computer Science and Engineering
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... * Email- shweta.pramanik02@gmail.com <br>
+- 📫 How to reach me ... <br>
+                         * Email- shweta.pramanik02@gmail.com <br>
                          * LinkedIn - www.linkedin.com/in/shweta-pramanik <br>
                          * Twitter - @__imshweta   <br>
                          * Instagram - @shweta._  <br>
