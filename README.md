@@ -7,7 +7,7 @@
                          * LinkedIn  - www.linkedin.com/in/shweta-pramanik                <br>
                          * Twitter   - https://twitter.com/__imshweta                     <br>
                          * Pinterest - https://www.pinterest.es/i_am_shweta               <br>
-                         * Instagram - https://www.instagram.com/shweta._                 <br>
+                         * Instagram - https://www.instagram.com/shweta._/                 <br>
                          * Skype     - https://join.skype.com/invite/wvodkSPRV9oY         <br>
                          * Snapchat  - https://www.snapchat.com/add/la.shweta             <br>
                          * Discord   - https://discord.com/invite/CWyfSKptQh              <br>
